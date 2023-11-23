@@ -1,6 +1,8 @@
+[![Sem-T-tulo-2.png](https://i.postimg.cc/Dfjcz4cy/Sem-T-tulo-2.png)](https://postimg.cc/6TZZj3SD)
+
 ## Quem sou eu 
 
-Renato Romeu, 38 anos, casado, uma filha, dois cachorros, apaixonado por música, exclusivamente Rock n Roll e Heavy metal, avançado em Excel, BI, Photoshop e o mundo corporativo entre outras cositas mas
+Renato Romeu, 38 anos, casado, uma filha, dois cachorros, apaixonado por música, exclusivamente Rock n'Roll e Heavy metal, avançado em Excel, BI, Photoshop e o mundo corporativo entre outras cositas mas
 
 Desde cedo sempre fui curioso, desmontava as coisas só para ver como elas funcionavam, claramente eu não sabia remontar o que me gerou inúmeros problemas.
 Sou uma pessoa introspectiva e prefiro mil vezes ficar na minha com meu fone de ouvido ouvindo a mesma música por dias seguidos à socializar com desconhecidos.
@@ -8,7 +10,11 @@ Trabalhei em grandes companhias como Toyota, LG Eletronics e Samsung CE. Atuando
 A questão aqui é que eu cheguei até onde cheguei sem ter uma faculdade. Pela sinestesia eu sempre aprendi e evolui mais fazendo do que estudando, principalmente com leitura, algo que não me instrui muito bem.
 Este ano de 2023 eu decidi então aos meus 38 anos de idade que eu iniciaria a faculdade e assim fiz, e também queria estudar na faculdade que me interessava, FIAP.
 
+Atualmente estudo Análise e Desenvolvimento de Sistemas na FIAP, pensei em fazer uma transição de carreira de RH T&D para Tech e o motivo foi simplesmente pelo desafio. 💻
+
 O resto é história para outra hora.
+
+😃😃😃
 
 ## Atenção, risco de queda de abacate 🥑
 
